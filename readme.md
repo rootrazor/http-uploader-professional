@@ -4,4 +4,4 @@
 # Coded By RootRazor
 # twitter.com/rootraz0r - telegram: rootrazor
 
-![resim](https://i.resimyukle.xyz/TT5f09.png)
+![resim](https://i.resimyukle.xyz/J1J5fy.png)
